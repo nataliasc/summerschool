@@ -1,1 +1,1 @@
-# summerschool
+Summer school!
